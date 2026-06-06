@@ -1,1 +1,1 @@
-# windsofchange.github.io
+# Winds of Change Wiki
